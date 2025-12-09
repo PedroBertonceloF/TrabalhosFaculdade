@@ -1,1 +1,1 @@
-Some works i have developed on my own for my CS courso in my college
+Some works i have developed on my own for my CS course in my college
